@@ -28,6 +28,6 @@ PJ295282AAA![iamge](https://b2bfiles1.gigab2b.cn/image/wkseller/301/20230517_01a
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n512-pj295282aaa/  
 

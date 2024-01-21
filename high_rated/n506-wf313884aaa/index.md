@@ -99,6 +99,6 @@ PVC化粧板は汚れや摩擦に強く、水も弾くため、こぼしても�
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n506-wf313884aaa/  
 

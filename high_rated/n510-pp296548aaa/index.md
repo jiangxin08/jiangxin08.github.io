@@ -45,6 +45,6 @@ POINT 7 【たっぷり入る使いやすい内装】
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n510-pp296548aaa/  
 

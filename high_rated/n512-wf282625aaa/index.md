@@ -44,6 +44,6 @@ Detail Point 側面で支えてずり落ちを防し 上段には、睡眠中の
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n512-wf282625aaa/  
 

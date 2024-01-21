@@ -177,6 +177,6 @@ ISOFIXがあれば、簡単にシートにしっかり固定できます。安�
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n508-pp304609caa/  
 

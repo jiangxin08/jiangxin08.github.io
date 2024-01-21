@@ -68,6 +68,6 @@ PUレザー製で、汚れや磨耗に強いのが特徴です。
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n506-pp192519caa/  
 

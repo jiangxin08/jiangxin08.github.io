@@ -50,6 +50,6 @@ PUレザーを採用した柔らかい座面 こだわりの天然木脚 キズ�
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n504-wf311190baa/  
 

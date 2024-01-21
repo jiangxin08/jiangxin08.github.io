@@ -40,6 +40,6 @@ Power cable length: 2M Rated power supply: 60Hz /100V Rated power: 175W Main mat
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/w1259-w125953168/  
 

@@ -28,6 +28,6 @@ detail 1 こだわりの天然木脚で、高さ調節機能もついており�
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n511-ha305455aaa/  
 

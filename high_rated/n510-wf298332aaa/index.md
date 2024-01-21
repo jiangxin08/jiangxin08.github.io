@@ -28,6 +28,6 @@ POINT 6.【透明ワニス】ささくれになりやすいため、透明ワニ
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n510-wf298332aaa/  
 
