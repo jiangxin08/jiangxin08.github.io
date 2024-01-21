@@ -28,6 +28,6 @@ POINT 5.【折りたためステップ】べダルに脚が届けないときは
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n510-ms212690baa/  
 

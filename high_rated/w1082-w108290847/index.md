@@ -28,6 +28,6 @@ Blue-grey sofa bed![iamge](nan)
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/w1082-w108290847/  
 

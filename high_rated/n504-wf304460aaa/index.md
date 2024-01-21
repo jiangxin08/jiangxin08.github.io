@@ -52,6 +52,6 @@ PUレザーを採用した柔らかい座面 スーツの座面はクッショ�
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n504-wf304460aaa/  
 

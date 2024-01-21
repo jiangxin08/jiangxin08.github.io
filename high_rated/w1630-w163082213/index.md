@@ -28,6 +28,6 @@ L字型PCゲーミングデスク 組み立てが簡単 幅130cm*奥行50cm*高�
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/w1630-w163082213/  
 

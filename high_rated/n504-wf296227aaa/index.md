@@ -71,6 +71,6 @@ POINT 5：室内設置OK！ 室内外を問わず、どんな場所に馴染む�
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n504-wf296227aaa/  
 

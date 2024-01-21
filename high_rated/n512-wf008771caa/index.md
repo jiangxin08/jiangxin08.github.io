@@ -28,6 +28,6 @@ WF187583CAA センターテーブル![iamge](https://b2bfiles1.gigab2b.cn/image/
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n512-wf008771caa/  
 

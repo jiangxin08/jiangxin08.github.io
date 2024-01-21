@@ -48,6 +48,6 @@ point5.【細かいこだわり】
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n510-wf298164aaa/  
 

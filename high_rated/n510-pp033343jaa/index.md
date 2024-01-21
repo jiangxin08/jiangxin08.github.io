@@ -28,6 +28,6 @@ S sizeについて： 外寸：約55 cm x 38 cm x 21.5 cm 内寸：約48 cm x 32
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n510-pp033343jaa/  
 

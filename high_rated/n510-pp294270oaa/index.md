@@ -29,6 +29,6 @@ POINT 8.【簡潔便利な内装】荷物をしっかり固定するクロスベ
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/n510-pp294270oaa/  
 

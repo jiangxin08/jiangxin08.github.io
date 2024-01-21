@@ -57,6 +57,6 @@ PVC【お手入れがしやすいレザータイプ】PVCレザー製なので�
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/w1630-w163081068/  
 

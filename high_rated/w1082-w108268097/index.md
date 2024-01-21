@@ -28,6 +28,6 @@ Beige Sofa Bed![iamge](https://b2bfiles1.gigab2b.cn/image/wkseller/10588/2022061
 
 ---
 
-> : [Ella](https://blog.jp.amzshop.net/)  
+> Author: [Ella](https://blog.jp.amzshop.net/)  
 > URL: https://blog.jp.amzshop.net/high_rated/w1082-w108268097/  
 
